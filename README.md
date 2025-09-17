@@ -6,6 +6,7 @@
 🔗 [Offer Letter](https://drive.google.com/file/d/1spqyuMGj-Hf8GQ9ikzmMSDbM-aSXdnd6/view?usp=sharing)  
 🔗 [Completion Letter](https://drive.google.com/file/d/1aKwtyXzpHnc-NTJXAvHIzdr-60htEQiP/view?usp=sharing)  
 🔗 [Power BI Dashboard](https://app.powerbi.com/links/yUSsh3SupO?ctid=f710f4a7-f3c1-4153-b96f-463c94d65ada&pbi_source=linkShare)  
+🔗 [Report](https://docs.google.com/document/d/1ynLI4_W-0BS94tNxpOthF9Zjj_VvQWbi/edit?usp=sharing&ouid=107415297118158002697&rtpof=true&sd=true) 
 
 ---
 
